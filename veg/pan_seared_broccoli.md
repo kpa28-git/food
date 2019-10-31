@@ -9,9 +9,9 @@
 
 # Ingredients
 ## Dry
-- 2 Full Heads Broccoli
+- 2 full heads broccoli
 ## Wet
-- 2 Tablespoons olive oil
+- 2 tablespoons olive oil
 ## Seasonings
 - 1 tsp salt
 - ¼-1/2 tsp pepper
